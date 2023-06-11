@@ -7,4 +7,4 @@ Clavell fathered a large number of children.  Nobody knows how many.  Surely tod
 Apart from any crimes commited in the U.S.A. or Canada, it is known that he had a criminal record in the UK comprising six entries.
 Also he commited at least one serious crime (robbery of a postman) in the UK for which he was never caught.
 Clavell Sheppard died in 1983 aged 77 years.  All his working life he lived from the social benefits ("Welfare" payments) of his wives.
-The moral of this story is that there is "Survival Value" in being born a psychopath.
+The moral of this story is that there is "survival value" in being born a psychopath.
